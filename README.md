@@ -57,9 +57,9 @@
 
 ## ✨ Contributions
 
-- 🔥 1,100+ Total Contributions
+- 🔥 100+ Total Contributions
 - 📌 Current streak: **0**
-- 🚀 Longest streak: **138 days**
+- 🚀 Longest streak: **3 days**
 
 ---
 
