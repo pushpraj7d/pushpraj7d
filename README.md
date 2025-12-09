@@ -67,7 +67,7 @@
 
 - 📧 Email: singhpushparaj123@gmail.com  
 - 💼 LinkedIn: [pushpraj-singh-rajput](https://linkedin.com/in/pushpraj-singh-rajput)  
-- 📸 Instagram: [pushpa_ka_pov](https://instagram.com/pushpa_ka_pov)  
+- 📸 Instagram: [pushpa_ka_pov](https://instagram.com/pushpraj_7d)  
 - 🐦 Twitter: [pushpraj_7d](https://twitter.com/pushpraj_7d)
 
 ---
